@@ -1,1 +1,2 @@
-https://cdn.discordapp.com/attachments/904125043892703292/909543575635767336/unknown.png
+
+![i'm interested in football and code sounds fun.](https://cdn.discordapp.com/attachments/904125043892703292/909543575635767336/unknown.png)
